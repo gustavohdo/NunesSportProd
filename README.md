@@ -1,3 +1,2 @@
 # NunesSportProd
-
-![image](https://github.com/gustavohdo/NunesSportProd/assets/23175018/c3e877fe-13cf-4a61-a708-92788d7c6e42)
+![image](https://github.com/gustavohdo/NunesSportProd/assets/23175018/dbd0197b-ca47-4dd7-9444-0752a1b3ab6a)
